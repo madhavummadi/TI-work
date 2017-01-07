@@ -1,3 +1,0 @@
-# TI-work
-###dfghjklkjhgf
-##dfghjkl
